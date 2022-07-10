@@ -1,4 +1,4 @@
-![CEw80P](https://user-images.githubusercontent.com/20098740/168182151-3cf28ac3-8b86-4830-8fb0-736690aebef0.gif)
+![Alt text](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQgbc43TnAkIilbEqbncQoeAJR8wX3Ii9UhGw&amp;usqp=CAU)
 ![YEHMRXHERE(2)](https://user-images.githubusercontent.com/20098740/168183567-4a43cc67-87c7-45f1-8e1a-b9eb258d42c0.gif)
 ![joy](https://user-images.githubusercontent.com/20098740/168183942-9d67e2f4-b20f-4d4d-939a-fdfe05ac2a16.gif)
 ![Medusateam](https://user-images.githubusercontent.com/20098740/168184231-7369488a-3db2-4de6-9962-2549b554ea7f.gif)
