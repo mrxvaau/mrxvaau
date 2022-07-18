@@ -1,6 +1,3 @@
-![your_text (2)](https://user-images.githubusercontent.com/20098740/178893676-7c80941a-fcb6-42b8-a6b1-9b2f540779eb.gif)
- 🔴DESIGN🔴MAFIAVAU👈FB🔴
-![your_text (2)](https://user-images.githubusercontent.com/20098740/178893676-7c80941a-fcb6-42b8-a6b1-9b2f540779eb.gif)
 ![f](https://user-images.githubusercontent.com/20098740/178166039-e7f26d27-65a2-4b72-991a-dfe4d9fe4ff8.gif)
 ![YEHMRXHERE(2)](https://user-images.githubusercontent.com/20098740/168183567-4a43cc67-87c7-45f1-8e1a-b9eb258d42c0.gif)
 ![your_text (2)](https://user-images.githubusercontent.com/20098740/178893676-7c80941a-fcb6-42b8-a6b1-9b2f540779eb.gif)
@@ -36,6 +33,14 @@
 ![68747470733a2f2f696d672e736869656c64732e696f2f62616467652f76657263656c2d2532333030303030302e7376673f7374796c653d706c6173746963266c6f676f3d76657263656c266c6f676f436f6c6f723d7768697465](https://user-images.githubusercontent.com/20098740/178889543-cbfd19a0-2f11-4e2e-9694-bbd9d5e014f1.svg)
 ![68747470733a2f2f696d672e736869656c64732e696f2f62616467652f547970655363726970742d3331373843363f7374796c653d666f722d7468652d6261646765266c6f676f3d74797065736372697074266c6f676f436f6c6f723d7768697465](https://user-images.githubusercontent.com/20098740/178882446-479b268e-432f-4fc2-8811-0ee33d1f0efc.svg)
 ![141647414-15cfe279-af12-4746-a886-f494c25c096d](https://user-images.githubusercontent.com/20098740/179301753-186c6e46-2b00-417d-bda8-29810b43c1bf.png)
+![your_text (2)](https://user-images.githubusercontent.com/20098740/178893676-7c80941a-fcb6-42b8-a6b1-9b2f540779eb.gif)
+🔴DESIGN BY🔴MAFIAVAU
+
+🔴FB🔴MAFIAVAU
+
+🔴SUPPORTED BY : JOY
+
+🔴FB🔴 JOY.YT01
 ![your_text (1)](https://user-images.githubusercontent.com/20098740/178626261-2bbb5de6-2290-47d6-abc0-729eb0e330e4.png)
 ![medusa (5)](https://user-images.githubusercontent.com/20098740/178136032-7988f19e-0a4d-42dc-883f-73051f35695e.png)
 ![your_text (2)](https://user-images.githubusercontent.com/20098740/178893676-7c80941a-fcb6-42b8-a6b1-9b2f540779eb.gif)
