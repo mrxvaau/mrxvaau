@@ -4,5 +4,3 @@
 ![LOLZGITPULLNOTWORK](https://user-images.githubusercontent.com/20098740/180668719-9c552a5e-a790-42c8-8a09-214de15488d8.gif)
 
 ![NOTETHEBIGCODERC](https://user-images.githubusercontent.com/20098740/180670010-a052a920-2fef-44f1-b98c-a53d6c1b1773.gif)
-
-![SURPISE (1)](https://user-images.githubusercontent.com/20098740/180669850-a1c94947-2b4b-4be4-a965-cf4d8a6c35bb.gif)
