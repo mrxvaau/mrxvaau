@@ -6,6 +6,6 @@
 
 🔴ANY QUS: CONTACT US👇
 
-👽FB: MAFIAVAU [OFF]
+👽FB: MAFIAVAU [OFFLINE]❌
 
-👽FB: JOY.YT01 [ONN]
+👽FB: JOY.YT01 [ONLINE]✔
