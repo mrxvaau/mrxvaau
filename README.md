@@ -29,7 +29,7 @@
 ![68747470733a2f2f696d672e736869656c64732e696f2f62616467652f6d7973716c2d2532333030662e7376673f7374796c653d706c6173746963266c6f676f3d6d7973716c266c6f676f436f6c6f723d7768697465](https://user-images.githubusercontent.com/20098740/178889006-09960cd2-916a-4b7e-a12c-79cbd26fdfff.svg)
 ![IMG](https://i.imgur.com/tABin5L.gif)
 ![141647414-15cfe279-af12-4746-a886-f494c25c096d](https://user-images.githubusercontent.com/20098740/179301753-186c6e46-2b00-417d-bda8-29810b43c1bf.png)
-![stock-footage-business-technology-internet-and-network-concept-automation-software-technology-process-system](https://user-images.githubusercontent.com/20098740/189108196-195a2ff0-efec-4ae7-8c08-10fc4834a5c0.gif)
+![ezgif-1-20321fee8d](https://user-images.githubusercontent.com/20098740/191741956-c8208779-d554-4d89-88b3-b4b21db8cbb5.gif)0098740/189108196-195a2ff0-efec-4ae7-8c08-10fc4834a5c0.gif)
 ![IMG](https://i.imgur.com/tABin5L.gif)
 ![IMG](https://i.imgur.com/9Y2wZF3.gif)
 ![IMG](https://i.imgur.com/tABin5L.gif)
