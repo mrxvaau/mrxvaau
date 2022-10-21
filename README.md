@@ -5,8 +5,6 @@
 ![your_text (1)](https://user-images.githubusercontent.com/20098740/178626261-2bbb5de6-2290-47d6-abc0-729eb0e330e4.png)
 ![IMG](https://i.imgur.com/pLbyEpn.gif)
 ![IMG](https://i.imgur.com/gHkr4fl.gif)
-![IMG](https://i.imgur.com/3yfcdRo.gif)
-![IMG](https://i.imgur.com/gHkr4fl.gif)
 ![IMG](https://i.imgur.com/OQVeUtF.gif)
 ![IMG](https://i.imgur.com/tABin5L.gif)
 ![python](https://user-images.githubusercontent.com/20098740/191824447-e5e4a4b5-3cbb-4a72-9561-653e6a811dee.svg) ![c](https://user-images.githubusercontent.com/20098740/191825541-468237ed-537d-44fc-9a5b-cb3222f3efa0.svg)
