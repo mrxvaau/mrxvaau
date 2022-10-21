@@ -2,7 +2,6 @@
 ![IMG](https://i.imgur.com/gckeuWA.gif)
 ![your_text (1)](https://user-images.githubusercontent.com/20098740/178626261-2bbb5de6-2290-47d6-abc0-729eb0e330e4.png)
 ![f](https://user-images.githubusercontent.com/20098740/178166039-e7f26d27-65a2-4b72-991a-dfe4d9fe4ff8.gif)
-![your_text (1)](https://user-images.githubusercontent.com/20098740/178626261-2bbb5de6-2290-47d6-abc0-729eb0e330e4.png)
 ![IMG](https://i.imgur.com/pLbyEpn.gif)
 ![IMG](https://i.imgur.com/gHkr4fl.gif)
 ![IMG](https://i.imgur.com/OQVeUtF.gif)
