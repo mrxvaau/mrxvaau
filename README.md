@@ -1,10 +1,1 @@
-![IMG](https://i.imgur.com/yHUhl1S.gif)
-![IMG](https://i.imgur.com/x1sy4Eg.gif)
-![IMG](https://i.imgur.com/trjpqMe.gif)
-![ezgif-5-94466b3b90](https://user-images.githubusercontent.com/20098740/228388649-8845144d-9bf6-40e0-9c90-928e86a74104.gif)
-![IMG](https://i.imgur.com/3k3mEFt.gif)
-![IMG](https://i.imgur.com/2MqNaIp.gif)
-![IMG](https://i.imgur.com/kWWaoNM.gif)
-![IMG](https://i.imgur.com/YXzRZ36.gif)
-![systems](https://user-images.githubusercontent.com/20098740/197082201-9cfd8e2a-c4c2-40ca-b093-6b62489f49f2.gif)
-![images](https://user-images.githubusercontent.com/20098740/228400042-60dc4572-112c-43fd-9751-cdde1e2f77fe.png)
+
